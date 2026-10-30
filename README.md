@@ -37,7 +37,7 @@ I'm currently exploring how modern infrastructure works, building hands-on proje
 
 ### 🤝 Let's Connect
 
-- LinkedIn: [Your LinkedIn URL](YOUR_LINKEDIN_URL)
+- LinkedIn: www.linkedin.com/in/vaibhavi-vanshita-66665735a
 
 ---
 
